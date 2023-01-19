@@ -1,2 +1,2 @@
 # Exploiter-for-Roblox
-Cool,
+Cool
